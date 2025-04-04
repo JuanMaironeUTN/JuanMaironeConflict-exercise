@@ -1,2 +1,2 @@
 # JuanMaironeConflict-exercise
- Descripcion Opcional
+CONFLICTO TOTAL
